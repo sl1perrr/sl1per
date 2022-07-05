@@ -7,6 +7,6 @@
 ![](https://osu.ppy.sh/ss/17737798/2226)
 
 # [ # GiraffeMiX ](https://drive.google.com/file/d/1pm6F8MQgTJsiVgCaHmM7TEFmWgex3Ymq/view)
-![](https://osu.ppy.sh/ss/17737798/2226)
+![](https://osu.ppy.sh/ss/17948813/042d)
 
 
