@@ -13,8 +13,8 @@
 # [ #Aristia# - - White](https://mega.nz/file/3CR10YLY#WrhKxXepeVhSauqRY2Xflscags5w9cqncVKXdlH0esY)
 ![](https://osu.ppy.sh/ss/18088710/3003)
 
-# [ Mastasz - EZ [RK](https://mega.nz/folder/SRMhGDgB#lXqlAOWI2RwD_Qb6dRWGVg/file/vV1FXIob)
-![](https://osu.ppy.sh/ss/18088710/3003)
+# [ Mastasz - EZ [RK]](https://mega.nz/folder/SRMhGDgB#lXqlAOWI2RwD_Qb6dRWGVg/file/vV1FXIob)
+![](https://osu.ppy.sh/ss/18088722/d2f5)
 
 
 
