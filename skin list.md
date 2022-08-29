@@ -10,6 +10,8 @@
 # [ #Aristia# - - Mastasz](https://drive.google.com/file/d/1ccN7ySn7z_v_Y1JdjiXfRfFlZVD74rgP/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18088702/54ea)
 
+# [ #Aristia# - - White](https://mega.nz/file/3CR10YLY#WrhKxXepeVhSauqRY2Xflscags5w9cqncVKXdlH0esY)
+![](https://osu.ppy.sh/ss/18088710/3003)
 
 
 
