@@ -19,5 +19,8 @@
 # [- # #Aristia# - - Tekkito](https://mega.nz/file/Cq5FEK7A#8-GUO9q9UDmgaPh4maFex1C3AEonL0AKBFrBPnPf0T0)
 ![](https://user-images.githubusercontent.com/37017946/188500980-f2c78c4f-9f69-47fc-9615-fbce886a0dc8.png)
 
+# [- # #Aristia# - - seoul](https://drive.google.com/file/d/1XJ_XgsTbQ1s2XjzBmK67kgnMiwz7EAJZ/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18184080/0521)
+
 
 
