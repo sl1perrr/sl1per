@@ -1,4 +1,4 @@
-# sl1per skins | **last update 11.10.22**
+# sl1per skins | **last update 11.10.2022**
 # **[Twitch](https://www.twitch.tv/sl1per__)**
 
 # **[Discord server](https://discord.com/invite/2THdBXyua2)**
