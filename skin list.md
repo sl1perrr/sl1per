@@ -16,8 +16,8 @@
 # [- # #Mastasz# - - EZ](https://mega.nz/folder/SRMhGDgB#lXqlAOWI2RwD_Qb6dRWGVg/file/vV1FXIob)
 ![](https://osu.ppy.sh/ss/18088722/d2f5)
 
-# [- # #Aristia# - - Tekkito]([https://mega.nz/folder/SRMhGDgB#lXqlAOWI2RwD_Qb6dRWGVg/file/vV1FXIob](https://mega.nz/file/Cq5FEK7A#8-GUO9q9UDmgaPh4maFex1C3AEonL0AKBFrBPnPf0T0))
-![]([https://osu.ppy.sh/ss/18088722/d2f5](https://user-images.githubusercontent.com/37017946/188500980-f2c78c4f-9f69-47fc-9615-fbce886a0dc8.png))
+# [- # #Aristia# - - Tekkito](https://mega.nz/file/Cq5FEK7A#8-GUO9q9UDmgaPh4maFex1C3AEonL0AKBFrBPnPf0T0)
+![](https://user-images.githubusercontent.com/37017946/188500980-f2c78c4f-9f69-47fc-9615-fbce886a0dc8.png)
 
 
 
