@@ -1,6 +1,6 @@
 # sl1per skins
 [Twitch](https://www.twitch.tv/sl1per__)
-
+[Discord server](https://discord.com/invite/2THdBXyua2)
 *last update 11.10.22*
 
 # [- # #Aristia# - - Varvalian](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
