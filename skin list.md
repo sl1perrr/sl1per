@@ -1,7 +1,7 @@
-# sl1per skins
+# sl1per skins *last update 11.10.22*
 [Twitch](https://www.twitch.tv/sl1per__)
+
 [Discord server](https://discord.com/invite/2THdBXyua2)
-*last update 11.10.22*
 
 # [- # #Aristia# - - Varvalian](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
 ![](https://osu.ppy.sh/ss/17599721/4526)
