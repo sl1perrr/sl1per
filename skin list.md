@@ -3,11 +3,8 @@
 
 # **[Discord server](https://discord.com/invite/2THdBXyua2)**
 
-# [- # Tippy 『KC』 # -](https://drive.google.com/file/d/19WhHNUvDyfb94UEoiyJzXjCjUpUusxiX/view)
-![](https://osu.ppy.sh/ss/18414126/6af8)
-
-# [- # #Aristia# - - Varvalian](https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0)
-![](https://osu.ppy.sh/ss/17599721/4526)
+# [vv_idke_trail]([https://www.dropbox.com/s/48dcytp0ed32tyu/Varv.osk?dl=0](https://mega.nz/file/9uAnTCJC#_L2ak_27vqzE_FOQuFl32w7xjcSKGWNrSwPMMM_4Ows))
+![](https://skimg.osuck.net/953ca834deb2ffa34bdc4814e09422c4.webp)
 
 
 
